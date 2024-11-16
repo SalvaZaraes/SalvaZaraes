@@ -1,3 +1,5 @@
+My blog: https://salvazaraes.blog
+
 You can find me also on Twitter (X): https://x.com/SalvaZaraes 
 
 
